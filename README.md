@@ -1,0 +1,3 @@
+# GhostHax-JP  
+
+ナニモナイ
